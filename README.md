@@ -7,5 +7,5 @@ opção de download do https://github.com/Jeanpseven/SiteCloner incluido no scri
 #Jean
 #30/06/2023
 #instagram: @jeanpseven
-I MEOW MEOW YOU HAW
+ ̶I̶ ̶m̶e̶o̶w̶ ̶m̶e̶o̶w̶ Fuck YOU HAW
 
